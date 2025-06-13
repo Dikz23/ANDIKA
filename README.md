@@ -1,0 +1,2 @@
+# ANDIKA
+PEMULA A
